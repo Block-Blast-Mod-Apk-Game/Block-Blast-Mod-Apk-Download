@@ -1,4 +1,4 @@
-# Download Block Blast Mod APK (No Ads) Latest Version 6.0.8 
+# Block Blast Mod APK V6.1.8 (Unlimited Revive/Score, No Ads) Latest Version
 ## Download Link 👉[Download Now Block Blast Mod Apk](https://blockblastmodapk.com/)
 
 ---
